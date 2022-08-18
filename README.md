@@ -13,9 +13,9 @@ Ich habe in den Sommerferien ein bisschen [Russisch](https://de.wikipedia.org/wi
 Ich habe vor allem mich darauf fokussiert russische Verben zu lernen, weil ich mir gedacht habe, dass das am meisten Sinn ergibt.
 
 ## Beschreibung
-![Screenshot 2022-08-18 083241](https://user-images.githubusercontent.com/111045656/185311776-3abcb530-e6e4-4db5-8674-aef9c5831f44.png)
+[![Screenshot 2022-08-18 083241](https://user-images.githubusercontent.com/111045656/185311776-3abcb530-e6e4-4db5-8674-aef9c5831f44.png)](https://quizlet.com/ch/710971767/russische-verben-flash-cards/)
 
-Ich habe hauptsächlich auf Quizlet gelernt, weil ich denke, dass das der effektivste Weg ist Wörter zu lernen. Ich habe jeden Tag um die 10 Wörter gelernt, weil ich zuerst die wichtigsten Wörter, also die, die man auch im Alltag bräuchte, wie man oben im Bild sieht. Beim Lernen habe ich mir das Wort immer zuerst angehört und dann versucht nachzusprechen. Wenn ich wusste, wie man die Wörter ausspricht habe ich gelernt, wie man sie schreibt.
+Ich habe hauptsächlich auf Quizlet gelernt, weil ich denke, dass das der effektivste Weg ist Wörter zu lernen. Ich habe jeden Tag um die 10 Wörter gelernt, weil ich zuerst die wichtigsten Wörter, also die, die man auch im Alltag bräuchte, wie man oben im Bild sieht. Beim Lernen habe ich mir das Wort immer zuerst angehört und dann versucht nachzusprechen. Wenn ich wusste, wie man die Wörter ausspricht habe ich gelernt, wie man sie schreibt. (Um auf Lernset zu kommen, nur auf Bild drücken)
 
 
 https://user-images.githubusercontent.com/111045656/185317732-132624ea-46e3-4aa1-abd3-52f2fc59bd96.mp4
